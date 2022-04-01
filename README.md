@@ -1,5 +1,5 @@
-Kinda new to all that lmao.
-I'm currently trying to learn some new coding languages and get more into coding in general.
+How the hell does that shi work 
+
 
 
 
