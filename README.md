@@ -1,4 +1,7 @@
-## How the hell does that shi work. Github is kinda complicated ngl <br/> nvm uhm I'm kinda new to all that, currently trying to learn new coding languages (cuz the only one I learned and know how to use is python..yeah feeling kinda lost) and get more into coding in general. If you want to know more about me...well I'm just an ordinary student with a very boring life and much freetime ig
+## Randomly logged back into this account which I forgot about. Anyways I deleted everything cuz I did the stuff like 2 years ago and it got cringe. (Might start uploading again on here tho...) 
+## But if you want to know more about me...well I'm just an ordinary student with a very boring life and too much freetime ig (Oh and I mostly use pyhton and C..) 
+##
+## For now..farewell Stranger
 <br/> 
 
 
